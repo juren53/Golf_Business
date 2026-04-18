@@ -1,4 +1,4 @@
-# The Public Golf Course Business
+# Not in the Public Interest
 
 When the Platte County Commission voted to sell Shiloh Springs Golf Course to a private golf chain in 2018, they offered a simple justification: the course couldn't pay for itself. The public was told this was a practical decision, not a political one. The numbers, they said, just didn't add up.
 
