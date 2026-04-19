@@ -2,7 +2,7 @@
 
 When the Platte County Commission voted to sell Shiloh Springs Golf Course to a private golf chain in 2018, they offered a simple justification: the course couldn't pay for itself. The public was told this was a practical decision, not a political one. The numbers, they said, just didn't add up.
 
-The numbers did add up — just not on the commission's balance sheet.
+Anyone who took a close look at their numbers found they did not add up — but the commission was not going to let details derail a conclusion they had already drawn.
 
 Within a single year of the sale, the course was operating in the black. Today it is reportedly the most profitable course in the entire private chain that purchased it. Whatever management problems existed under public ownership, the new owners apparently found them quite solvable.
 
